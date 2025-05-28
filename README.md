@@ -1,4 +1,4 @@
-# Hi, I'm Yuvraj0108 👋
+# Hi, I'm Yuvraj Singh 👋
 
 Welcome to my GitHub profile! Here's a little bit about me:
 
